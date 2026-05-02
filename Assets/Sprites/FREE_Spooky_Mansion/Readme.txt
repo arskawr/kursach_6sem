@@ -1,0 +1,6 @@
+THANK YOU FOR DOWNLOADING MY ASSET!
+FOR QUESTIONS, REQUESTS AND CONTACT INFO:
+
+https://dhassa.itch.io/
+
+Twitter: @dhassapixel
